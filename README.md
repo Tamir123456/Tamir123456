@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tamir1-6
+- 👀 I’m interested in coding languages.
+- 🌱 I’m currently learning phyton language.
+- 📫 How to reach me find me
